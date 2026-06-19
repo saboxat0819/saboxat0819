@@ -6,4 +6,5 @@
 
 ## Rasmim
 <img src="81256b863ccd28c9d16e3a735f2f7294_0.jpeg" width="200" alt="Mening rasmim">
+Men hozir 14 yoshdaman va Qoraqalpog'iston Respublikasida yashayman.Bu yerda yashayotganimga endi 10 oy bo'ldi.Bu yerda maktabga yanggi kelgan kunimda xamma men bilan yaxshi chiqishib ketdi.
 
